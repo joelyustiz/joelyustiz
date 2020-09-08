@@ -7,6 +7,6 @@
 
 <div align="center">
 
-#### Let's Work Together (Yustizjoel17@gmail.com)
+#### Let's Work Together
 
 </div>
